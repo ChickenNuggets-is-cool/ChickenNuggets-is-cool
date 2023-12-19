@@ -1,5 +1,5 @@
 ### Hi there 👋
-I unblocked fnf 
+I love fnf 
 here
 https://chickennuggets-is-cool.github.io/ChickenNuggets-is-cool/
 trust me ima update this alot 
